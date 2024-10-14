@@ -1,1 +1,6 @@
-# Digital-ally-by-sumit--umrao
+# Digital-ally-by-sumit--umrao![Screenshot 2024-10-14 144600](https://github.com/user-attachments/assets/9b9867bc-9c1e-457d-9a9c-f8c38fc33ba0)
+![Screenshot 2024-10-14 144732](https://github.com/user-attachments/assets/fe2f05af-877c-458f-a3ef-8b14e99cef7a)
+![Screenshot 2024-10-14 144709](https://github.com/user-attachments/assets/be5991c0-f4ce-44e6-9c54-34c1ec29736d)
+![Screenshot 2024-10-14 144816](https://github.com/user-attachments/assets/ee4bf2ee-956c-4786-b603-a9bea8e75616)
+![Screenshot 2024-10-14 144839](https://github.com/user-attachments/assets/e08d5913-2f4f-4945-b9a3-7534979c0a9f)
+![Screenshot 2024-10-14 144859](https://github.com/user-attachments/assets/e6523021-93aa-4904-ac07-3f20ebdd3536)
